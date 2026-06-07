@@ -1,6 +1,7 @@
 # mythPT
-Pony town Info!!
-GENERAL
+***Pony town Info!!***
+
+_GENERAL_
  - always C+H; come join me whenever!!
  - sitting w/ other people doesn't mean i ship the characters. i rarely ship any ccharacters
  - i am overly affectionate to my friends,, if its okay w/ u, i dont mind kisses!!
@@ -9,7 +10,7 @@ GENERAL
  - okay i ran out of stuff lololol
  - i am okay with doubles!! i love seeing how people see the same character
 
-DNI
+_DNI_
  - basic dni (on strawpage)
  - HH/HB fans,, im sorry yall freak me out
  - if you dont have anything nice to say to me, then just leave me alone. dont make drama for no reason - unless i have done something to upset someone
