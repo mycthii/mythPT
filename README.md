@@ -1,7 +1,7 @@
 # mythPT
 Pony town Info!!
 GENERAL
-> always C+H; come join me whenever!!
+>>> always C+H; come join me whenever!!
 > sitting w/ other people doesn't mean i ship the characters. i rarely ship any ccharacters
 > i am overly affectionate to my friends,, if its okay w/ u, i dont mind kisses!!
 > i am a part of some media of which the fandom is questionable. i am aware of this, and dont associate myself w/ the fandom/ creators
